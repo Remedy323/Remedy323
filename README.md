@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Remedy323
-- 👀 I’m interested in working as a Customer Service Representative 
+- 👀 I’m interested in working as a web3.0 enthusiast and a Data Analyst 
 - 🌱 I’m currently learning more about cryptocurrencies 
 - 💞️ I’m looking to collaborate on with anyone with vast knowledge 
 - 📫 How to reach me: I can be reach via my telegram account @Ayoade112
